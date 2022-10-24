@@ -1,0 +1,1 @@
+# Descobrir-chave-Win10
